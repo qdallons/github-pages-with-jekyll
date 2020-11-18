@@ -1,3 +1,5 @@
-# Welcome to my blog
+e# Bienvenue chez Revealact.io
+e# Welcome to Revalact.io
 
-I'm glad you are here. I plan to talk about ...
+Je suis très heureux de vous voir ici. Je prévois de vous parler de VOUS !
+I'm glad you are here. I plan to talk about YOU !
